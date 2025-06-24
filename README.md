@@ -1,1 +1,3 @@
 # Dziwacy-Obe-2
+Ci dziwacy kłucili się o fajki i oszczędzacze i te rzeczy które dodałem na github kiepskiej jakości tak dobrej jak fajki. 
+Dziwacy obe to ruch wojskowych i prosesora wojskowego i na czele generała kaliego linuxa i złodzieji sportu. Oni wszyscy to religijni jak czują że ktoś ma pieniedze to generują przegłosy sylabizując. Np.: Papierosy, Oszczędzacze, robota budowa itp. Nie pozwalają żyć z pieniedzy. Tylko karzą wydawać pieniedze na fajki i zakupy w cerrffur. To wojsko zabiera pieniedze i majątek na fajki i produkty papieroso podobne. Jednorazyw szmelc. Każdy czat GPT określa ich mianem złodzieji i post mafi jak tą kaśkę z roku 2500 roku z warszawy.  
